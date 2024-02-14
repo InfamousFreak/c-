@@ -1,2 +1,2 @@
-smarak is gay
+smarak is king of kings in elden ring 
 
